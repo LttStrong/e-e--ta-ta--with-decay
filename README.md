@@ -1,1 +1,1 @@
-# e-e--ta-ta--with-decay
+# e+ e- > ta+ ta-
